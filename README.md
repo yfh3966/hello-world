@@ -1,7 +1,7 @@
 # hello-world
 Hello World
 
-My anme is Raymond.
+My name is Raymond.
 
 Have you 
 ⊂_ヽ
