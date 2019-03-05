@@ -5,7 +5,7 @@ My name is Raymond.
 
 Have you 
 ⊂_ヽ
-　 ＼＼ subscribed to
+   ＼＼ subscribed to
 　　 ＼( ͡° ͜ʖ ͡°)
 　　　 >　⌒ヽ
 　　　/ 　 へ＼
